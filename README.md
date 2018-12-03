@@ -5,11 +5,11 @@ Repoooooooooooooooo
 
 
 
-1119 Narrative:https://huron.itch.io/jamiekimmyclone
+1119 Narrative:https://huron.itch.io/jamienarrativekimmyday2
 
 
 
-1126 Narrative:https://huron.itch.io/jamienarrativekimmy1126
+1126 Narrative:https://huron.itch.io/jamiekimmyclone
 
 
 
